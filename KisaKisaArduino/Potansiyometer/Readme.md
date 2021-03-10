@@ -1,0 +1,1 @@
+Potansiyometre bağlantısı ve kullanımı
