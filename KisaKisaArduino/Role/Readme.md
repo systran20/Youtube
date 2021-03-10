@@ -1,0 +1,1 @@
+Basit, mekanik röle kullanımı
